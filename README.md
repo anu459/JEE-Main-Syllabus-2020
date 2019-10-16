@@ -1,0 +1,2 @@
+# JEE-Main-Syllabus-2020
+NTA conducts JEE Main examination twice in a year. When appearing for the exam, candidates should be fully prepared according to the prescribed JEE Main Syllabus 2020. The syllabus will contain all the important topics. Therefore, applicants should not skip any topic from it. Moreover, students are advised to consider the syllabus of JEE Main 2020 at the time of preparation so as to obtain a good score. 
